@@ -26,4 +26,7 @@
 
 
 
-   gυуѕ тєαgαη χ ∂αη∂у ιѕ ¢αηση!! ιм qωєℓ
+   gυуѕ тєαgαη χ ∂αη∂у ιѕ canonnnnn im Qwelverrr!! 
+
+O LEASE DONT JUDGE IDK HOW TO MAKE READMES
+
