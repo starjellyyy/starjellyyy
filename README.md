@@ -1,4 +1,4 @@
-һі s𝗍ᥲrȷᥱᥣᥣᥡ һᥱrᥱ!!!!!!!!!!!!!!!!!! 
+## һі s𝗍ᥲrȷᥱᥣᥣᥡ һᥱrᥱ!!!!!!!!!!!!!!!!!! 
 
 
 
@@ -8,9 +8,14 @@
  <source media="(prefers-color-scheme: light)" srcset="https://files.catbox.moe/9nongc.gif">
  <img alt="shows a dandy on light mode and a dandy on dark mode" src="https://files.catbox.moe/01u8gt.png">
 </picture>
-      ᥴᥲᥣᥣ mᥱ ՏTᗩᖇᒍᗴᒪᒪY Oᖇ ᐯITᗩ (Iᖴ YOᑌ ᗯᗩᑎT!!)
-   I ᗩᑕᑕᗴᑭT ᖴᖇIᗴᑎᗪ ᖇᗴᑫᑌᗴՏTՏ!! ᖴᗴᗴᒪ ᖴᖇᗴᗴ TO         ᖇᗴᑫᑌᗴՏT ᗰᗴ Oᑎᗴ :3
-           Iᗰ ᗩᒪᗯYᗩYՏ OᖴᖴTᗩᗷ ᗩᑎᗪ ᗩᒪᗯᗩYՏ ᗪIՏᑕOᑎᑎᗴᑕT ᗴᐯᗴᖇY ᗰIᑎ, ՏO ᗪOᑎT ᗰIᑎᗪ ᗰᗴ!!
+
+
+     >call me starjelly !! or vita
+   i accept friend request! plz bmf
+
+
+
+           ioften disco
       му вιятн∂αу ιѕ ση мαя¢н 15!! ιм αℓωαуѕ ѕιттιηg ιη ∂ω αяєα!! ѕσмєтιмєѕ ¢як αяєα.. 
 
 
