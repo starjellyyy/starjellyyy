@@ -10,11 +10,13 @@
 </picture>
 
 
-     >call me starjelly !! or vita
+     > call me starjelly !! or vita
    i accept friend request! plz bmf
 
 
-           i often disconnect lol
+         i often disconnect lol
+
+
       му вιятн∂αу ιѕ ση **March 15**! I always ѕιт in the dandys world area!! ѕσmetimes crk 
 
 
@@ -22,4 +24,4 @@
 
 
 
-            gυуѕ тєαgαη χ ∂αη∂у ιѕ ¢αηση!! ιм qωєℓ
+   gυуѕ тєαgαη χ ∂αη∂у ιѕ ¢αηση!! ιм qωєℓ
