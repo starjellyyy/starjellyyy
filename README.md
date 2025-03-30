@@ -21,8 +21,7 @@
     I  always ѕιт in the dandys world area!!  
               ѕσmetimes crk 
 
-![](https://komarev.com/ghpvc/?username=starjellies&color=d4b5ff)
-
+<center>![starjellies](https://komarev.com/ghpvc/?username=starjellies&color=d4b5ff)<center>
 
 
 
