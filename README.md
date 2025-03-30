@@ -14,9 +14,8 @@
    i accept friend request! plz bmf
 
 
-
            i often disconnect lol
-      му вιятн∂αу ιѕ ση <ins> March 15 </ins>!! ιм αℓωαуѕ ѕιттιηg ιη ∂ω αяєα!! ѕσмєтιмєѕ ¢як αяєα! 
+      му вιятн∂αу ιѕ ση **March 15**! I always ѕιт in the dandys world area!! ѕσmetimes crk 
 
 
 
