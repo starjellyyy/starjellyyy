@@ -10,7 +10,7 @@
 </picture>
 
 
-     call me starjelly !! or vita
+ <center>call me starjelly !! or vita<center>
    i accept friend request! plz bmf
 
 
