@@ -16,10 +16,8 @@
 
          i often disconnect lol
 
-
-      му вιятн∂αу ιѕ ση *March 15*! 
-    I  always ѕιт in the dandys world area!!  
-              ѕσmetimes crk 
+му вιятн∂αу ιѕ ση __March 15__ ! 
+    I  always ѕιт in the dandys world area!!  ѕσmetimes crk 
 
 ![starjellies](https://komarev.com/ghpvc/?username=starjellies&color=d4b5ff)
 
