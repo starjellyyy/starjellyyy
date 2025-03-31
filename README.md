@@ -11,8 +11,7 @@
 
 
 <p align="center">
-   __starjelly__ or __dandy__
-</p>
+__starjelly__ or __dandy__</p>
 
 
 
