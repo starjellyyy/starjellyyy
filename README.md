@@ -19,7 +19,7 @@
 
 <p align="center">March 15</p>
 
-<p align="cebter">she , her ˊ/ star , starself ˎ</p>
+<p align="center">she , her ˊ/ star , starself ˎ</p>
 
 **sorry idk how to make READMES**
 
