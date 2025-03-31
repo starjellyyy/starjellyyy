@@ -10,7 +10,6 @@
 </picture>
 
 
-<p align="center">
-![hi](https://komarev.com/ghpvc/?username=starjelly&color=bae2e4)</p>
+<p align="center"> ![starjellies](https://komarev.com/ghpvc/?username=starjelly&color=bae2e4) </p>
 
 
