@@ -10,6 +10,9 @@
 </picture>
 
 
-<p align="center"> ![starjellies](https://komarev.com/ghpvc/?username=starjelly&color=bae2e4) </p>
+<p align="center">
+   __starjelly__ or __dandy__
+</p>
+
 
 
