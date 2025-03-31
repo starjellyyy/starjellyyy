@@ -11,6 +11,6 @@
 
 
 <p align="center">
-![starjellies](https://komarev.com/ghpvc/?username=starjellies&color=d4b5ff) </p>
+![](https://komarev.com/ghpvc/?username=starjelly&color=bae2e4)</p>
 
 
