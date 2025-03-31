@@ -12,7 +12,7 @@
 
 <p align="center">starjelly •/• dandy </p>
 
-  ![hey](https://shields.io/badge/dynamic/json?color=B8C0FF&label=Profile%20Views&query=count&url=https://komarev.com/ghpvc/?username=starjelly)
+![Profile Views](https://shields.io/badge/dynamic/json?color=B8C0FF&label=Profile%20Views&query=count&url=https://komarev.com/ghpvc/?username=starjelly)
 
 <p align="center">aroace ˋ indonesian ˊ audhd</p>
 
