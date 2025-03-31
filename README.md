@@ -12,7 +12,7 @@
 
 <p align="center">starjelly •/• dandy </p>
 
-![Profile Views](https://komarev.com/ghpvc/?username=starjelly&color=b8c0ff)
+<p align="center">![Profile Views](https://komarev.com/ghpvc/?username=starjelly&color=b8c0ff)</p>
 
 
 <p align="center">aroace ˋ indonesian ˊ audhd</p>
