@@ -17,7 +17,7 @@
          i often disconnect lol
 
 
-      му вιятн∂αу ιѕ ση **March 15**! 
+      му вιятн∂αу ιѕ ση *March 15*! 
     I  always ѕιт in the dandys world area!!  
               ѕσmetimes crk 
 
