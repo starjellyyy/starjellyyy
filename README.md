@@ -10,21 +10,6 @@
 </picture>
 
 
- <center>call me starjelly !! or vita<center>
-   i accept friend request! plz bmf
+<center>![starjellies](https://komarev.com/ghpvc/?username=starjellies&color=d4b5ff)<center>
 
-
-         i often disconnect lol
-
-му вιятн∂αу ιѕ ση __March 15__ ! 
-    I  always ѕιт in the dandys world area!!  ѕσmetimes crk 
-
-![starjellies](https://komarev.com/ghpvc/?username=starjellies&color=d4b5ff)
-
-
-
-   gυуѕ тєαgαη χ ∂αη∂у ιѕ canonnnnn im Qwelverrr!! 
-
-O LEASE DONT JUDGE IDK HOW TO MAKE READMES
-(ignore hte discord link!! pls dont join) 
 
