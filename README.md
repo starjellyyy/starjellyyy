@@ -10,8 +10,15 @@
 </picture>
 
 
-<p align="center">
-__starjelly__ or __dandy__</p>
+<p align="center">starjelly •/• dandy </p>
+
+  ![hey](https://shields.io/badge/dynamic/json?color=B8C0FF&label=Profile%20Views&query=count&url=https://komarev.com/ghpvc/?username=starjelly)
+
+<p align="center">aroace ˋ indonesian ˊ audhd</p>
+
+**sorry idk how to make READMES**
+
+         TEAGAN X DANDY CANONNNN ♡♡♡
 
 
 
