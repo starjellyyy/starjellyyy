@@ -23,7 +23,7 @@
 
 **sorry idk how to make READMES**
 
-         TEAGAN X DANDY CANONNNN ♡♡♡
+         TEAGAN X DANDY YURI CANONNNN ♡♡♡
 
 
 
