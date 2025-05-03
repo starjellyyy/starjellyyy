@@ -4,9 +4,9 @@
 
 
 <picture>
- <source media="(prefers-color-scheme: dark)" [srcset="(https://files.catbox.moe/57pfbk.gif)">
+ <source media="(prefers-color-scheme: dark)" [srcset="(https://files.catbox.moe/zpspeg.png)">
  <source media="(prefers-color-scheme: light)" srcset="https://files.catbox.moe/jdnd53.png">
- <img alt="shows a dandy on light mode and a dandy on dark mode" src="https://files.catbox.moe/01u8gt.png">
+ <img alt="shows a dandy on light mode and a dandy on dark mode" src="https://files.catbox.moe/zpspeg.png">
 </picture>
 
 
