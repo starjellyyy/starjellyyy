@@ -23,7 +23,6 @@
 
 <p align="center"> 𝐢 𝐝𝐫𝐚𝐰 𝐝𝐚𝐧𝐝𝐲 / 𝐭𝐞𝐚𝐟𝐥𝐨𝐰𝐞𝐫 𝐝𝐚𝐢𝐥𝐲! </p>
 
-**sorry idk how to make READMES**
 
          TEAGAN X DANDY YURI CANONNNN ♡♡♡
 
