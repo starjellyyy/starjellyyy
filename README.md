@@ -1,4 +1,4 @@
-<p align="center">𝐃𝐀𝐍𝐃𝐘 𝐎𝐈𝐋𝐄𝐃 𝐔𝐏</p> 😝😝
+<p align="center">𝐃𝐀𝐍𝐃𝐘 𝐎𝐈𝐋𝐄𝐃 𝐔𝐏</p>
 
 
 
@@ -10,18 +10,18 @@
 </picture>
 
 
-<p align="center">starjelly •/• dandy </p>
+<p align="center">𝐒𝐓𝐀𝐑𝐉𝐄𝐋𝐋𝐘 / 𝐃𝐀𝐍𝐃𝐘 </p>
 
 ![Profile Views](https://komarev.com/ghpvc/?username=starjelly&color=b8c0ff)
 
 
-<p align="center">aroace ˋ indonesian ˊ audhd</p>
+<p align="center">𝐀𝐑𝐎𝐀𝐂𝐄 ˋ 𝐈𝐍𝐃𝐎𝐍𝐄𝐒𝐈𝐀 ˊ 𝐀𝐔𝐃𝐇𝐃</p>
 
-<p align="center">March 15</p>
+<p align="center">𝐌𝐀𝐑𝐂𝐇 𝟏𝟓</p>
 
-<p align="center">she , her ˊ/ star , starself ˎ</p>
+<p align="center">𝐒𝐇𝐄 , 𝐇𝐄𝐑 ˊ/ 𝐒𝐓𝐀𝐑 , 𝐒𝐓𝐀𝐑𝐒𝐄𝐋𝐅 ˎ</p>
 
-<p align="center"> meh... you probably know me from my chiikawa x dandys world au!</p>
+<p align="center"> 𝐢 𝐝𝐫𝐚𝐰 𝐝𝐚𝐧𝐝𝐲 / 𝐭𝐞𝐚𝐟𝐥𝐨𝐰𝐞𝐫 𝐝𝐚𝐢𝐥𝐲! </p>
 
 **sorry idk how to make READMES**
 
