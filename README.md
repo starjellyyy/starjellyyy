@@ -27,7 +27,7 @@
 
          𝐢 𝐢𝐧𝐣𝐞𝐜𝐭 𝐜𝐥𝐞𝐚𝐧𝐡𝐮𝐠𝐬 𝐭𝐞𝐥𝐞𝐬𝐜𝐨𝐩𝐞 𝐭𝐞𝐚𝐟𝐥𝐨𝐰𝐞𝐫 𝐢𝐧 𝐦𝐲 𝐯𝐞𝐢𝐧𝐬 ♡♡♡
  
-![wow](https://files.catbox.moe/cdp2jm.gif) 
+![?](https://github.com/starjellyyy/https://files.catbox.moe/cdp2jm.gif) 
 
 
 
