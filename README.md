@@ -12,7 +12,7 @@
 
 <p align="center">s𝗍ᥲrȷᥱᥣᥣᥡ , ძᥲᥒძᥡ , mіᥒ᥆rі</p>
 
-<p align="center"> ![Profile Views](https://komarev.com/ghpvc/?username=starjelly&color=b8c0ff)</p>
+![Profile Views](https://komarev.com/ghpvc/?username=starjelly&color=b8c0ff)
 
 <p align="center">mᥲrᥴһ 15</p>
 
