@@ -23,5 +23,5 @@
 
 <p align="center">proof that im dandys 1# fan ↓</p>
 
-![dandy room](https://files.catbox.moe/jppc9i.png) 
+![dandyyyyyyyyyyyyyyy](https://files.catbox.moe/jppc9i.png) 
 
