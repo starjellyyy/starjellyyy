@@ -14,7 +14,7 @@
 
 ![Profile Views](https://komarev.com/ghpvc/?username=starjelly&color=b8c0ff)
 
-<p align="center">mᥲrᥴһ 15 , bisexual</p>
+<p align="center">mᥲrᥴһ 15 , pan</p>
 
 <p align="center">sһᥱ , һᥱr ˊ s𝗍ᥲr , s𝗍ᥲrsᥱᥣ𝖿,!! im taken by dandy my gf😳😳😳😛</p>
 
