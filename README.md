@@ -27,4 +27,4 @@
 ![SHRINE](https://files.catbox.moe/0n2qf6.jpg)
 
 
-↑↑↑↑↑↑↑↑↑↑↑↑↑↑↑↑↑↑↑↑↑↑↑↑↑↑↑↑that's my room guys im forever his wife and im NOT SHARING
+↑↑↑↑↑↑↑↑↑↑↑↑↑↑↑↑↑↑↑↑↑↑↑↑↑↑↑↑that's my room guys im forever his wife and im NOT SHARING (im adding more dandy in my room nya~) 
