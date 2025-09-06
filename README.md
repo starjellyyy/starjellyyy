@@ -22,6 +22,9 @@
          𝐢 𝐢𝐧𝐣𝐞𝐜𝐭 𝐜𝐥𝐞𝐚𝐧𝐡𝐮𝐠𝐬 𝐭𝐞𝐥𝐞𝐬𝐜𝐨𝐩𝐞 𝐭𝐞𝐚𝐟𝐥𝐨𝐰𝐞𝐫 partypopper 𝐢𝐧 𝐦𝐲 𝐯𝐞𝐢𝐧𝐬 ♡♡♡ 
  
 
-proof that im dandys official wife ↓
+<p align="center">proof that im dandys official wife ↓</p>
 
 ![SHRINE](https://files.catbox.moe/0n2qf6.jpg)
+
+
+↑↑↑↑↑↑↑↑↑↑↑↑↑↑↑↑↑↑↑↑↑↑↑↑↑↑↑↑that's my room guys im forever his wife and im NOT SHARING
