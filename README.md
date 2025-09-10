@@ -28,3 +28,7 @@
 
 
 ↑↑↑↑↑↑↑↑↑↑↑↑↑↑↑↑↑↑↑↑↑↑↑↑↑↑↑↑that's my room guys im forever his wife and im NOT SHARING (im adding more dandy in my room nya~) 
+
+upd:
+![lala](https://files.catbox.moe/w5wfra.jpg) 
+teflower🥹 ignor small dandy
