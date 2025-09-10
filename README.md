@@ -32,3 +32,5 @@
 upd:
 ![lala](https://files.catbox.moe/w5wfra.jpg) 
 teflower🥹 ignor small dandy
+
+i wish i have a cardboard to make a life sized dandy standee
