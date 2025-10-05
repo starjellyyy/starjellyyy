@@ -24,6 +24,8 @@
 
 <p align="center">proof that im dandys official wife ↓</p>
 
+![spe](https://tenor.com/eTPeTERPXvU.gif)
+
 ![SHRINE](https://files.catbox.moe/0n2qf6.jpg)
 ↑↑↑↑↑↑↑↑↑↑↑↑↑↑↑↑↑↑↑↑↑↑↑↑↑↑↑↑that's my room guys im forever his wife
 
