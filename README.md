@@ -24,12 +24,9 @@
 
 <p align="center">proof that im dandys official wife ↓</p>
 
-![spe](https://tenor.com/eTPeTERPXvU.gif)
 
 ![SHRINE](https://files.catbox.moe/0n2qf6.jpg)
 ↑↑↑↑↑↑↑↑↑↑↑↑↑↑↑↑↑↑↑↑↑↑↑↑↑↑↑↑that's my room guys im forever his wife
 
 ![lala](https://files.catbox.moe/w5wfra.jpg) 
-teflower🥹 ignor small dandy
-
-i wish i have a cardboard to make a life sized dandy standee
+teflower🥹
