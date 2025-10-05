@@ -25,11 +25,8 @@
 <p align="center">proof that im dandys official wife ↓</p>
 
 ![SHRINE](https://files.catbox.moe/0n2qf6.jpg)
+↑↑↑↑↑↑↑↑↑↑↑↑↑↑↑↑↑↑↑↑↑↑↑↑↑↑↑↑that's my room guys im forever his wife
 
-
-↑↑↑↑↑↑↑↑↑↑↑↑↑↑↑↑↑↑↑↑↑↑↑↑↑↑↑↑that's my room guys im forever his wife and im NOT SHARING (im adding more dandy in my room nya~) 
-
-upd:
 ![lala](https://files.catbox.moe/w5wfra.jpg) 
 teflower🥹 ignor small dandy
 
