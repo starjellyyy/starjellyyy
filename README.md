@@ -19,7 +19,7 @@
 <p align="center">sһᥱ , һᥱr ˊ s𝗍ᥲr , s𝗍ᥲrsᥱᥣ𝖿,!! im dandys official wife!</p>
 
 
-         𝐢 𝐢𝐧𝐣𝐞𝐜𝐭 𝐜𝐥𝐞𝐚𝐧𝐡𝐮𝐠𝐬 𝐭𝐞𝐥𝐞𝐬𝐜𝐨𝐩𝐞 𝐭𝐞𝐚𝐟𝐥𝐨𝐰𝐞𝐫 partypopper 𝐢𝐧 𝐦𝐲 𝐯𝐞𝐢𝐧𝐬 ♡♡♡ 
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31uk2jsu2ijbjj35ijv7mokxi37a&cover_image=true&theme=default&show_offline=false&background_color=00ffff&interchange=true&profanity=false&bar_color_cover=true&bar_color=ffffff)](https://github.com/kittinan/spotify-github-profile)
  
 
 <p align="center">proof that im dandys official wife ↓</p>
