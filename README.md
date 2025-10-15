@@ -19,7 +19,7 @@
 <p align="center">sһᥱ , һᥱr ˊ s𝗍ᥲr , s𝗍ᥲrsᥱᥣ𝖿,!! im dandys official wife!</p>
 
 
-<p align="center"> [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31uk2jsu2ijbjj35ijv7mokxi37a&cover_image=true&theme=default&show_offline=false&background_color=00ffff&interchange=true&profanity=false&bar_color_cover=true&bar_color=ffffff)](https://github.com/kittinan/spotify-github-profile)</p>
+<p align="center">[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31uk2jsu2ijbjj35ijv7mokxi37a&cover_image=true&theme=default&show_offline=false&background_color=00ffff&interchange=true&profanity=false&bar_color_cover=true&bar_color=ffffff)](https://github.com/kittinan/spotify-github-profile)</p>
  
 
 <p align="center">proof that im dandys official wife ↓</p>
