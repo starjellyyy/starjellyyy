@@ -30,3 +30,5 @@
 
 ![lala](https://files.catbox.moe/w5wfra.jpg) 
 teflower🥹 (daitaku helios mentioned)
+
+my project sekai user ID is 630706423069216780 ! (japaneese) pls add me :) 
