@@ -23,7 +23,8 @@
  
 
 <p align="center">proof that im dandys 0# fan-</p>
-![sdndydu](https://files.catbox.moe/4wm8ey.jpg) 
+
+![nee](https://files.catbox.moe/4wm8ey.jpg) 
 
 ![lala](https://files.catbox.moe/w5wfra.jpg) 
 teflower🥹 (daitaku helios mentioned)
