@@ -24,9 +24,5 @@
 
 <p align="center">proof that im dandys 0# fan-</p>
 
-![nee](https://files.catbox.moe/4wm8ey.jpg) 
-
-![lala](https://files.catbox.moe/w5wfra.jpg) 
-teflower🥹 (daitaku helios mentioned)
-
+![nee](https://files.catbox.moe/4wm8ey.jpg)
 my project sekai user ID is 630706423069216780 ! (japaneese) pls add me :) 
