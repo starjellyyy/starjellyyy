@@ -1,10 +1,6 @@
 <p align="center">I AM HELIOS!!! RA!!!! APOLLO, THE INTI!!!!! YOU DARE MOCK MY NAME, ARES!?!?</p>
 
-<picture>
-  <source media="(prefers-color-scheme: dark)" srcset="https://tenor.com/id/view/planet-x-solarballs-gif-14567791805312875435">
-  <source media="(prefers-color-scheme: light)" srcset="https://tenor.com/id/view/solarballs-sun-solarballs-helios-ra-apollo-gif-6340599771118509766">
-  <img alt="sun and planet x." src="https://tenor.com/hIya2PkU9vS.gif">
-</picture>
+![sun](https://tenor.com/id/view/solarballs-sun-solarballs-helios-ra-apollo-gif-6340599771118509766) 
 
 <p align="center">s𝗍ᥲrȷᥱᥣᥣᥡ , ძᥲᥒძᥡ ,</p>
 
