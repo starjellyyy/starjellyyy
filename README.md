@@ -4,10 +4,9 @@
 
 
 <picture>
- <source media="(prefers-color-scheme: dark)" [srcset="(https://files.catbox.moe/24c4qe.png)">
- <source media="(prefers-color-scheme: light)" srcset="https://files.catbox.moe/hx3f76.png">
- <img alt="shows a minori on light mode and a scary minori on dark mode" src="https://files.catbox.moe/24c4qe.png">
-</picture>
+ <source media="(prefers-color-scheme: dark)" [srcset="(https://tenor.com/rwiNUfwkcnn.gif)">
+ <source media="(prefers-color-scheme: light)" srcset="https://tenor.com/hIya2PkU9vS.gif">
+ <img alt="shows sun on light mode and a scary planet x on dark mode" src="https://tenor.com/hIya2PkU9vS.gif"</picture>
 
 
 <p align="center">s𝗍ᥲrȷᥱᥣᥣᥡ , ძᥲᥒძᥡ ,</p>
