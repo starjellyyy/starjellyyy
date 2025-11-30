@@ -1,6 +1,6 @@
 <p align="center">I AM HELIOS!!! RA!!!! APOLLO, THE INTI!!!!! YOU DARE MOCK MY NAME, ARES!?!?</p>
 
-![sun](https://tenor.com/id/view/solarballs-sun-solarballs-helios-ra-apollo-gif-6340599771118509766) 
+![](https://github.com/starjellyyy/https://tenor.com/hIya2PkU9vS.gif)
 
 <p align="center">s𝗍ᥲrȷᥱᥣᥣᥡ , ძᥲᥒძᥡ ,</p>
 
