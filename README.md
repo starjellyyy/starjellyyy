@@ -1,6 +1,10 @@
 <p align="center">I AM HELIOS!!! RA!!!! APOLLO, THE INTI!!!!! YOU DARE MOCK MY NAME, ARES!?!?</p>
 
-
+<picture>
+  <source media="(prefers-color-scheme: dark)" srcset="https://tenor.com/rwiNUfwkcnn.gif">
+  <source media="(prefers-color-scheme: light)" srcset="https://tenor.com/hIya2PkU9vS.gif">
+  <img alt="Shows an illustrated Sun in light mode and Planet X in dark mode." src="https://tenor.com/hIya2PkU9vS.gif">
+</picture>
 
 
 
