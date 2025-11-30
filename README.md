@@ -1,6 +1,6 @@
 <p align="center">I AM HELIOS!!! RA!!!! APOLLO, THE INTI!!!!! YOU DARE MOCK MY NAME, ARES!?!?</p>
 
-![](https://github.com/starjellyyy/https://files.catbox.moe/flq8m2.gif)
+![bro](https://github.com/starjellyyy/https://files.catbox.moe/flq8m2.gif)
 
 <p align="center">s𝗍ᥲrȷᥱᥣᥣᥡ , ძᥲᥒძᥡ ,</p>
 
