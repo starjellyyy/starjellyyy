@@ -3,7 +3,7 @@
 <picture>
   <source media="(prefers-color-scheme: dark)" srcset="https://tenor.com/id/view/planet-x-solarballs-gif-14567791805312875435">
   <source media="(prefers-color-scheme: light)" srcset="https://tenor.com/id/view/solarballs-sun-solarballs-helios-ra-apollo-gif-6340599771118509766">
-  <img alt="Shows an illustrated Sun in light mode and Planet X in dark mode." src="https://tenor.com/hIya2PkU9vS.gif">
+  <img alt="p." src="https://tenor.com/hIya2PkU9vS.gif">
 </picture>
 
 
