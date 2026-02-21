@@ -15,5 +15,7 @@
 
 <p align="center">shrine to show my love for dandy>
 
+![barta](https://files.catbox.moe/5fp3xi.gif)
+
 ![nee](https://files.catbox.moe/4wm8ey.jpg)
 my project sekai user ID is 630706423069216780 ! (japaneese) pls add me :) 
