@@ -6,9 +6,9 @@
 
 ![Profile Views](https://komarev.com/ghpvc/?username=starjelly&color=b8c0ff)
 
-<p align="center">mᥲrᥴһ 15 , pan</p>
+<p align="center">mᥲrᥴһ 15 (1 month left)</p>
 
-<p align="center">sһᥱ , һᥱr ˊ dandy , dandysᥱᥣ𝖿,apagender.im dandys official wife😅😅😅</p>
+<p align="center">sһᥱ , һᥱr ˊ apagender.im dandys official wife😅😅😅</p>
 
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31uk2jsu2ijbjj35ijv7mokxi37a&cover_image=true&theme=spotify-embed&show_offline=false&background_color=91ba72&interchange=true&profanity=false&mode=dark&bar_color=c4d1a1&bar_color_cover=true)](https://spotify-github-profile.kittinanx.com/api/view?uid=31uk2jsu2ijbjj35ijv7mokxi37a&redirect=true)
