@@ -1,6 +1,6 @@
 <p align="center">El Barto</p>
 
-<p align="center">![s](https://files.catbox.moe/ojw9u4.gif)</p>
+![s](https://files.catbox.moe/ojw9u4.gif)
 
 <p align="center">s𝗍ᥲrȷᥱᥣᥣᥡ , ძᥲᥒძᥡ ,</p>
 
@@ -15,7 +15,7 @@
 
 
 
-<p align="center">![barta](https://files.catbox.moe/5fp3xi.gif)</p>
+![barta](https://files.catbox.moe/5fp3xi.gif)
 
 <p align="center"> shrine of dandy my beloved</p>
 
