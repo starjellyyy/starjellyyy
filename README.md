@@ -1,6 +1,6 @@
-<p align="center">I AM HELIOS!!! RA!!!! APOLLO, THE INTI!!!!! YOU DARE MOCK MY NAME, ARES!?!?</p>
+<p align="center">El Barto</p>
 
-![cute sun](https://files.catbox.moe/v84veb.jpg) 
+<p align="center">![s](https://files.catbox.moe/ojw9u4.gif)</p>
 
 <p align="center">s𝗍ᥲrȷᥱᥣᥣᥡ , ძᥲᥒძᥡ ,</p>
 
@@ -15,7 +15,7 @@
 
 
 
-![barta](https://files.catbox.moe/5fp3xi.gif)
+<p align="center">![barta](https://files.catbox.moe/5fp3xi.gif)</p>
 
 <p align="center"> shrine of dandy my beloved</p>
 
