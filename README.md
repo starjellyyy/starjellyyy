@@ -6,7 +6,7 @@
 
 ![Profile Views](https://komarev.com/ghpvc/?username=starjelly&color=b8c0ff)
 
-<p align="center">mᥲrᥴһ 15 (1 month left)</p>
+<p align="center">mᥲrᥴһ 15</p>
 
 <p align="center">sһᥱ , һᥱr ˊ apagender.im dandys official wife😅😅😅</p>
 
