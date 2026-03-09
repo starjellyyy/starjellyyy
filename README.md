@@ -19,5 +19,7 @@
 
 <p align="center"> shrine of dandy my beloved</p>
 
+im also dating godhacker666 from hiafjbagh
+
 ![nee](https://files.catbox.moe/4wm8ey.jpg)
 my project sekai user ID is 630706423069216780 ! (japaneese) pls add me :) 
