@@ -1,5 +1,7 @@
 <p align="center">s𝗍ᥲrȷᥱᥣᥣᥡ</p>
 
+![bombya](https://files.catbox.moe/lhegql.jpg) 
+
 ![Profile Views](https://komarev.com/ghpvc/?username=starjelly&color=b8c0ff)
 
 <p align="center">mᥲrᥴһ 15</p>
