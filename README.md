@@ -16,4 +16,4 @@ my project sekai user ID is 630706423069216780 ! (japaneese) pls add me :)
 
 this is facty dancing aren't they talented? 
 
-![facty](https://files.catbox.moe/g9vay2.gif) 
+![facty](https://files.catbox.moe/g9vay2.gif) <p align="right">![facty they](https://files.catbox.moe/seu71q.png)</p>
