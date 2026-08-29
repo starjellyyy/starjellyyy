@@ -15,3 +15,5 @@ bmf if u like osc🙈
 my project sekai user ID is 630706423069216780 ! (japaneese) pls add me :) 
 
 aahahahhaahahhahaahahahahahahahhaahhahahahahahahaahahahahahahahaha
+
+![facty](https://files.catbox.moe/g9vay2.gif) 
