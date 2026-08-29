@@ -10,10 +10,10 @@
 
 <p align="center"> I LOVE BOMBY AND BOMBICKEL SO MuucCJHH</p>
 
-bmf if u like osc🙈
+bmf if u like osc/FAA
 
 my project sekai user ID is 630706423069216780 ! (japaneese) pls add me :) 
 
-aahahahhaahahhahaahahahahahahahhaahhahahahahahahaahahahahahahahaha
+this is facty dancing aren't they talented? 
 
 ![facty](https://files.catbox.moe/g9vay2.gif) 
